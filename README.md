@@ -1,4 +1,4 @@
-👋 Hi, I'm Maryam Khattak.
+👋 Hi, I'm Mariyam Khattak.
  
 💼 I'm a data analyst based in London, UK, working in compliance and reporting for energy efficiency and retrofit programmes.
  
